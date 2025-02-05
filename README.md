@@ -14,7 +14,7 @@ hiya /!! im frosty or i cud go by heirloom , eve , scag or whitelily !
                                        (     )  (     )
                                        /    |    |     \
                                       ( O   |    |    O )  ok thats it.. erm ya.. [
-[![white-lily-cookie.webp](https://i.postimg.cc/WpxggBvP/white-lily-cookie.webp)](https://postimg.cc/qgXNdZqm)
-[
-](https://i.postimg.cc/WpxggBvP/white-lily-cookie.webp)
+                                      
+ ....   screams    .. ![image](https://github.com/user-attachments/assets/53b6fc2c-321e-4358-b5e1-88540e4e39ac)
+
 
